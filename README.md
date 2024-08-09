@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil
+## Boas vindas ao meu perfil☣️
 
 
 **Jorgx77/Jorgx77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
